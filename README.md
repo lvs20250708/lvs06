@@ -10,4 +10,4 @@
 
 本站提供丰富的国产成人内容，从18禁高清片到精品美女视频，满足各类观众的观看需求。所有资源支持极速播放与高清体验，更新及时，无广告干扰，带来纯净流畅的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/lvs20250708/lvs06 ）</span>
